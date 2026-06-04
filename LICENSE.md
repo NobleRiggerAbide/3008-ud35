@@ -1,4 +1,4 @@
-#  
+#  3008 updated Scripts offers the most advanced 3008 Script, with auto-collect and auto-heal. Perfect for dominating any match.
 
 
 
